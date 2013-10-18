@@ -1,4 +1,3 @@
--harunpehlivan
-==============
-
 HARUN PEHLİVAN
+%75 GÖRME ENGELLİ İLGİ ALANI BİLİM İMAM-HATİP LİSESİ 2005 YILINDA MEZUN OLDU MESLEKİ AÇIKÖĞRETİM LİSESİ BİLİŞİM TEKNOLOJİLERİ 2010 YILINDA MEZUN OLDU
+Amasya, TR · harunpehlivan.tr.gg

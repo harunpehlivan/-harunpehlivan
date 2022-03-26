@@ -1,2 +1,0 @@
-# -harunpehlivan
-HARUN PEHLİVAN
